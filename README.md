@@ -14,6 +14,8 @@
   
 - 🤝 Talk to me about snooker, computers, or life.
   
+- 😄 My portfolio: [https://mohsinali1434.github.io](https://mohsinali1434.github.io/)
+  
 - 📫 How to reach me **3028ma@gmail.com**
 
 
